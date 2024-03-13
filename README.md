@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @icantryi
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning coding which will be replaced by AI
+- 📫 reach me here
+- 😄 Pronouns: i can try i(t)
+- ⚡ Fun fact: im not alone
